@@ -1,0 +1,1 @@
+A Developer just submitted his profile on laranaija.com. Click laranaija.com/admin/developers to approve/reject.
